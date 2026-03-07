@@ -3,9 +3,9 @@
 </p> 
 
 <p align="center">
-  <img src="https://i.pinimg.com/736x/8d/78/fd/8d78fda3aef2a2db7d21a59909ebb1a9.jpg" alt="Banner" width="100%">
+  <img src="https://i.pinimg.com/1200x/9b/75/37/9b7537d1f3b2aa49f3fa7a1caed66315.jpg" alt="Banner" width="100%">
 </p>
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&color=6593bf&style=flat-square" alt="Profile views" />
+  <img src="https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&color=8264a8&style=flat-square" alt="Profile views" />
 </p>
