@@ -1,5 +1,5 @@
 <p align="center">
- ݁ <a href="https://docs.google.com/document/d/1x_WElNwUJm2jtMjJMKIah1KIEuzjgLRYmOSCSOvqI6I/edit?pli=1&tab=t.0#heading=h.7vvaffwlrups">callout</a> ✦ ݁ <a href="https://sahlglitchyxx.atabook.org/">atabook</a> ✦ ݁ <a href="https://guns.lol/yurixml">guns.lol</a> ✦ ݁ <a href="https://yurii-.straw.page">strawpage</a>
+ ݁ <a href="https://docs.google.com/document/d/1x_WElNwUJm2jtMjJMKIah1KIEuzjgLRYmOSCSOvqI6I/edit?pli=1&tab=t.0#heading=h.7vvaffwlrups">callout</a> ✦  <a href="https://sahlglitchyxx.atabook.org/">atabook</a> ✦  <a href="https://guns.lol/yurixml">guns.lol</a> ✦  <a href="https://yurii-.straw.page">strawpage</a>
 </p> 
 
 <p align="center">
