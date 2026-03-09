@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://64.media.tumblr.com/376ca412b654cc63fdcbae7b255bd001/569e7d9a7ce0c257-d9/s1280x1920/5d8040478bc9b1d77a12e70e00bfde6d1530e602.gifv" width="400" />
+  <img src="https://cdn.shopify.com/s/files/1/0445/3357/9943/files/NendoroidDokiDokiLiteratureClub_YuriGamingVideoGameJapanFigureGoodSmileCompanyYattaJapan.jpg?v=1697019281" width="400" />
   <br>
   <sub>
   <p align="center">
