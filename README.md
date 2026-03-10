@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://cdn.shopify.com/s/files/1/0445/3357/9943/files/NendoroidDokiDokiLiteratureClub_YuriGamingVideoGameJapanFigureGoodSmileCompanyYattaJapan.jpg?v=1697019281" width="400" />
+  <img src="https://static.wikia.nocookie.net/illusion-carnival/images/f/f7/Delirini_5.png/revision/latest/scale-to-width-down/250?cb=20240818102901" width="400" />
   <br>
   <sub>
   <p align="center">
