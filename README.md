@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://static.wikia.nocookie.net/illusion-carnival/images/9/95/Delirini_20.png/revision/latest/scale-to-width-down/1000?cb=20240818103236" width="400" />
+  <img src="https://static.wikia.nocookie.net/illusion-carnival/images/5/56/Delirini_4.png/revision/latest/scale-to-width-down/1200?cb=20240818102859" width="400" />
   <br>
   <sub>
   <p align="center">
