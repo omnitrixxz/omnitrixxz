@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://pbs.twimg.com/media/HCS1p6Kb0AAvdME?format=jpg&name=900x900"400" />
+  <img src="https://64.media.tumblr.com/6441207ac898df5fa5905cd4236f99e6/863afd2f0dab277d-ed/s1280x1920/b424eeb0ecd88dee64cea8f8d90743b6dca26944.pnj" width="400" />
   <br>
   <sub>
   <p align="center">
