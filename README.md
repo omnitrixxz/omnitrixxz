@@ -3,6 +3,6 @@
   <br>
   <sub>
   <p align="center">
- ݁<sub><a href="https://sahlglitchyxx.atabook.org/">𝘢𝘵𝘢𝘣𝘰𝘰𝘬</a>  ◟  <a href="https://guns.lol/yurixml">𝘨𝘶𝘯𝘴.𝘭𝘰𝘭</a>  ◟  <a href="https://yurii-.straw.page">𝘴𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦</a></sub>
+ ݁<sub><a href="https://sahlglitchyxx.atabook.org/">𝘢𝘵𝘢𝘣𝘰𝘰𝘬</a>  ◟  <a href="https://guns.lol/yurixml">𝘨𝘶𝘯𝘴.𝘭𝘰𝘭</a>  </sub>
 </p> 
 
