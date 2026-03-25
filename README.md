@@ -11,7 +11,7 @@
   <br>
 
   <sub>
-    <a href="https://sahlglitchyxx.atabook.org/">݁新book </a>  ✦  <a href="https://guns.lol/yurixml"> guns.lol </a>
+    <a href="https://sahlglitchyxx.atabook.org/">݁新book </a>  ✦  <a href="https://guns.lol/banhammer.mp4"> guns.lol </a>
   </sub>
   <br><br>
 
