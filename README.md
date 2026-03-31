@@ -7,6 +7,6 @@
 
 <br> <sub>
 <sub>
-**[新book](https://sahlglitchyxx.atabook.org/)** &nbsp; ꒱ &nbsp; **[guns.lol](https://guns.lol/sh3nh3._)**  
+**[新book](https://sahlglitchyxx.atabook.org/)** &nbsp; ꒱ &nbsp; **[guns.lol](https://guns.lol/sh3nh3._)** ꒱ &nbsp; **[straw](https://cyr3n3.straw.page_)**  
 
 <br> 
