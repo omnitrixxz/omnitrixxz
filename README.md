@@ -3,7 +3,7 @@
 <img src="https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&style=pill&color=e7e1d7&label=%F0%9F%8D%8F" /> ꒱
 <br>
 
-<img src="https://64.media.tumblr.com/e701cd9b29ce733f369044375194e26f/17d4b5bcdb62a513-cb/s640x960/d41605bfdcdaf8e6e04d2aced1cc60f7334267d6.pnj" width="450">
+<img src="https://64.media.tumblr.com/176e4ab10631b66fdf46cb92540929b2/7c617fd1a5257ad3-7b/s2048x3072/97f3f5bdcfe7687d18d3267080a485f2929bf4cc.pnj" width="350">
 
 <br> <sub>
 
