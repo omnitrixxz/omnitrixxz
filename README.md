@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&style=pill&color=fcce73&label=%F0%9F%8D%8F" /> ꒱
+<img src="https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&style=pill&color=fcce73&label=✦" /> ꒱
 <br>
 
 <img src="https://pbs.twimg.com/media/HFSFSBgXgAA_efj?format=jpg&name=large" width="350">
