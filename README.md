@@ -1,9 +1,9 @@
 <div align="center">
 
-<img src="https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&style=pill&color=49069a&label=✦" /> ꒱
+<img src="https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&style=pill&color=ae965e&label=✦" /> ꒱
 <br>
 
-<img src="https://64.media.tumblr.com/ea9cdb3e29d63741c35355113d3e0de9/f2d6ace4ee8b8812-d4/s1280x1920/a684a289a5668d50375beae36efadbfd207642d0.pnj" width="350">
+<img src="https://64.media.tumblr.com/1b7b27cb89820ff2934a09bae21d5e7d/1a883d36a4728bc0-38/s1280x1920/121c37edc0ae8bae9ccf0285f6c18db55aaeddf2.pnj" width="350">
 
 <br> <sub>
 
