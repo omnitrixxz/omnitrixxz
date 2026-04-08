@@ -7,6 +7,6 @@
 
 <br> <sub>
 
-**[新book](https://sahlglitchyxx.atabook.org/)** &nbsp;        &nbsp; **[straw](https://su4.straw.page)**  
+**[新book](https://sahlglitchyxx.atabook.org/)** &nbsp;        &nbsp; **[straw](https://p1c0f4n.straw.page)**  
 
 <br> 
