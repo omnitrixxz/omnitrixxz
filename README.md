@@ -8,7 +8,7 @@
 <br>
 <p>𓎠𓎠 &nbsp;&nbsp;   fav people &nbsp;&nbsp;; &nbsp;&nbsp; namyu &nbsp;&nbsp;⏖&nbsp;&nbsp; jes&nbsp;&nbsp; ⏖&nbsp;&nbsp; ani&nbsp;&nbsp; ⏖&nbsp;&nbsp; keira</p>
 <br>
-<img src="https://64.media.tumblr.com/235e7062af03b9568c626feb92b602d3/6736511e32514a6d-9e/s2048x3072/d415d6b02487717c647e143b3ccddd4617293433.pnj" width="80">
+<img src="https://64.media.tumblr.com/e7eae7ffe1df8c4cbd2eabae7c08ed0a/7c2cb4d8034099c0-eb/s2048x3072/527da6dcb201e73d9607731757438a25f108036f.pnj" width="80">
 </div>
 
 <br clear="left"/>
