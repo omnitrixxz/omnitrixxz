@@ -3,8 +3,8 @@
 <div align="center">
 <br>
 <p> &nbsp;<b><a href="https://sahlglitchyxx.atabook.org/">新book </a></b> &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <b><a href="https://p1c0f4n.straw.page/">straw</a></b></p>
-<br>
-<p>  who wanna match swocket pfps w/me  &nbsp;&nbsp;&nbsp;&nbsp;  ૮ ˶ᵔ ᵕ ᵔ˶ ა
+<br>  matching with the &nbsp;<b><a href="https://github.com/eternalfaeslantern">twin ♡ </a></b>
+<p>  
 <br>
 <p>𓎠𓎠 &nbsp;&nbsp;   fav people &nbsp;&nbsp;; &nbsp;&nbsp; namyu &nbsp;&nbsp;⏖&nbsp;&nbsp; jes&nbsp;&nbsp; ⏖&nbsp;&nbsp; ani&nbsp;&nbsp; ⏖&nbsp;&nbsp; keira &nbsp;&nbsp; ⏖&nbsp;&nbsp; earl </p>
 <br>
