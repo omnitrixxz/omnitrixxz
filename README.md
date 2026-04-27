@@ -1,5 +1,5 @@
 <div align="left">
-<img src="https://64.media.tumblr.com/85238430feb08d777a2578228b619e90/b9f2a0fffa23381f-c4/s2048x3072/31b5320f26dc6bd4afef807935652855abad00de.jpg" width="400" align="left" style="margin-right: 20px;">
+<img src="https://i.pinimg.com/736x/79/3a/f6/793af69656714ae933c4f5b9026b4198.jpg" width="400" align="left" style="margin-right: 20px;">
 <div align="center">
 <br>
 <p> &nbsp;<b><a href="https://sahlglitchyxx.atabook.org/">新book </a></b> &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <b><a href="https://p1c0f4n.straw.page/">straw</a></b></p>
