@@ -1,15 +1,17 @@
-<div align="left">
-<img src="https://i.pinimg.com/736x/79/3a/f6/793af69656714ae933c4f5b9026b4198.jpg" width="400" align="left" style="margin-right: 20px;">
-<div align="center">
-<br>
-<p> &nbsp;<b><a href="https://sahlglitchyxx.atabook.org/">新book </a></b> &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <b><a href="https://p1c0f4n.straw.page/">straw</a></b></p>
-<br>  matching with the &nbsp;<b><a href="https://github.com/eternalfaeslantern">twin ♡ </a></b>
-<p>  
-<br>
-<p>𓎠𓎠 &nbsp;&nbsp;   fav people &nbsp;&nbsp;; &nbsp;&nbsp; namyu &nbsp;&nbsp;⏖&nbsp;&nbsp; jes&nbsp;&nbsp; ⏖&nbsp;&nbsp; ani&nbsp;&nbsp; ⏖&nbsp;&nbsp; keira &nbsp;&nbsp; ⏖&nbsp;&nbsp; earl </p>
-<br>
-<img src="https://64.media.tumblr.com/c537acf978dd84b88d2fe51c412e14c9/8f40fd259e36367b-47/s1280x1920/99cdca3a04d06b5fe5e8bd6b78db2e4862a85f69.pnj" width="80">
-</div>
+<div id="text" align="center">
 
-<br clear="left"/>
-</div>
+### **i　<ins>like</ins>　big　boxes**
+<sup>and　i　cannot　<ins>lie!</ins></sup>
+<br/>
+
+<p align = "center">
+<img src="https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&color=965c5d&style=plastic&label=crimes"/>
+</p>
+
+#### [TWITTER](https://x.com/keir1i_)　　[SP](https://p1c0f4n.straw.page/)　　[ATA](https://sahlglitchyxx.atabook.org/)　　[GUNS](https://guns.lol/sh3nh3._)
+<p align = "center">
+
+<img src="https://64.media.tumblr.com/7187cb58fbd85fb40416d29b0714c984/25d70de39dbc9917-3d/s640x960/33381c7eed9cbd3a03b3ed3b11c4e13c5e26f6e5.pnj" height="30%" width="30%"/>
+</p>
+
+<p align = "center"
