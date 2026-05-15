@@ -11,7 +11,7 @@
 #### [TWITTER](https://x.com/keir1i_)　　[SP](https://p1c0f4n.straw.page/)　　[ATA](https://sahlglitchyxx.atabook.org/)　　[GUNS](https://guns.lol/sh3nh3._)
 <p align = "center">
 
-<img src="https://64.media.tumblr.com/7187cb58fbd85fb40416d29b0714c984/25d70de39dbc9917-3d/s640x960/33381c7eed9cbd3a03b3ed3b11c4e13c5e26f6e5.pnj" height="30%" width="30%"/>
+<img src="https://i.pinimg.com/736x/0c/9c/84/0c9c849b0f5412cc63f6d0509e3d6ca2.jpg" height="30%" width="30%"/>
 </p>
 
 <p align = "center"
